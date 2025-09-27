@@ -1,1 +1,1 @@
-# Wedding Studio Shop 
+# Wedding Studio Shop
